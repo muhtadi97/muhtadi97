@@ -1,2 +1,1 @@
-Hi ![68747470733a2f2f747661312e73696e61696d672e636e2f6c617267652f653663396432346567793168313537316c30757563673230356b3035656772692e676966](https://github.com/user-attachments/assets/38d98bb5-a270-4719-ba91-ce028e8b37b2)
- , I'm ☑ Mukhtadi Arijuddin!
+Hi  ![hi](https://github.com/user-attachments/assets/d7a970cd-e986-4c9b-9bdf-2b94d5175bef), I'm ☑ Mukhtadi Arijuddin!
