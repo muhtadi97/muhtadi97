@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Mukhtadi Arijuddin
+- 👀 I’m interested in Programming
+- 🌱 I’m currently learning Coding
+- 💞️ I’m looking to collaborate 
+- 📫 How to reach me https://www.instagram.com/muhtadiarii/
+- 😄 Pronouns: Ari
